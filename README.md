@@ -1,3 +1,3 @@
-Hello, im a scripter of a age i do not say.
-Accuracy = 60%
-Knowledge in coding = 65%
+Hai! Im tgp.ground. https://www.youtube.com/channel/UCZIDLD0cMKFXrl0ueR_fXcw
+
+please subscribe i need money!!!
